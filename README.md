@@ -1,0 +1,1 @@
+The telegraph, invented in the early 19th century, revolutionized communication by enabling rapid transmission of information over long distances, facilitating business transactions and market integration.
