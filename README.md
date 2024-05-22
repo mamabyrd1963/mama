@@ -1,1 +1,1 @@
-The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
+The construction of railways in the 19th century revolutionized transportation, facilitating the movement of goods, people, and ideas across vast distances and spurring economic development.
