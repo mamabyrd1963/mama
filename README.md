@@ -1,1 +1,1 @@
-The construction of railways in the 19th century revolutionized transportation, facilitating the movement of goods, people, and ideas across vast distances and spurring economic development.
+The Atlantic slave trade reached its peak in the 18th century, with millions of Africans forcibly transported to the Americas to work on plantations and in mines, contributing to economic growth in European colonies.
