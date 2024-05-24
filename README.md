@@ -1,1 +1,1 @@
-The Atlantic slave trade reached its peak in the 18th century, with millions of Africans forcibly transported to the Americas to work on plantations and in mines, contributing to economic growth in European colonies.
+The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
