@@ -1,1 +1,1 @@
-The Atlantic slave trade reached its peak in the 18th century, with millions of Africans forcibly transported to the Americas to work on plantations and in mines, contributing to economic growth in European colonies.
+The Treaty of Utrecht, signed in 1713, marked the end of the War of Spanish Succession and reshaped the global balance of power, leading to territorial realignments and trade agreements.
