@@ -1,1 +1,1 @@
-The Dutch East India Company (VOC), founded in 1602, was one of the world's first multinational corporations and played a central role in global trade, particularly in the spice trade with Asia.
+The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
