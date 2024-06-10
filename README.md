@@ -1,1 +1,1 @@
-The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
+The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
