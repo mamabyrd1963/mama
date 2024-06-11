@@ -1,1 +1,1 @@
-The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
+The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
