@@ -1,1 +1,1 @@
-The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
+The 17th century witnessed significant innovations in finance and commerce, including the development of bills of exchange, double-entry bookkeeping, and insurance contracts.
