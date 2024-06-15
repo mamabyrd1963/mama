@@ -1,1 +1,1 @@
-The 17th century witnessed significant innovations in finance and commerce, including the development of bills of exchange, double-entry bookkeeping, and insurance contracts.
+The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
