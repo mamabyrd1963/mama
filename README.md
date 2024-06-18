@@ -1,1 +1,1 @@
-The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
+The British East India Company (EIC), chartered in 1600, was granted a monopoly on English trade with Asia and played a key role in British imperialism and commerce in the 17th century.
