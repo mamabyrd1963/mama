@@ -1,1 +1,1 @@
-The triangular trade, a system of trade routes between Europe, Africa, and the Americas, played a central role in the global economy of the 18th century, facilitating the exchange of goods, labor, and resources.
+The growth of colonial economies in the Americas was driven by cash crops such as sugar, tobacco, cotton, and indigo, which were cultivated using slave labor on large plantations.
