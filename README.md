@@ -1,1 +1,1 @@
-The growth of colonial economies in the Americas was driven by cash crops such as sugar, tobacco, cotton, and indigo, which were cultivated using slave labor on large plantations.
+The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
