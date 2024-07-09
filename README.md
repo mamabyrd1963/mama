@@ -1,1 +1,1 @@
-The rise of global trade networks in the 17th century facilitated the exchange of goods, ideas, and cultures between Europe, Asia, Africa, and the Americas, ushering in the era of globalization.
+The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
