@@ -1,1 +1,1 @@
-Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
+The enclosure movement in England during the 17th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
