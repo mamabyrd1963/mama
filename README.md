@@ -1,1 +1,1 @@
-The rise of imperialism in the 19th century was driven by economic motives, including the search for raw materials, markets, and investment opportunities in overseas territories.
+The Peace of Utrecht, signed in 1713, marked the end of the War of Spanish Succession and reshaped the global balance of power, leading to territorial realignments and trade agreements.
