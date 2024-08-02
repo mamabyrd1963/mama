@@ -1,1 +1,1 @@
-The United Kingdom emerged as the world's leading economic power in the 19th century, fueled by industrialization, technological innovation, and global trade networks.
+The economic theories of classical economics, espoused by thinkers like Adam Smith and David Ricardo, laid the foundation for modern economic thought and policy, emphasizing free markets, competition, and self-regulation.
